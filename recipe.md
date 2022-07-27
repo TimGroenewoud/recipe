@@ -3,6 +3,24 @@ HIGH PROTEIN SALAD
 
 This is a delicious high protein salad with sweet umami tempeh served on top of some fresh greens, sprouts, carrot and avocado served with some fresh sauerkraut
 
+INGREDIENTS
+
+100 g mixed green leaves
+50 g mixed sprouts such as alfalfa and mixed sprouted beans
+1 carrot grated
+1 lemon juiced
+10 cherry tomatoes
+1 avocado
+25 g sauerkraut – we used crimson or red cabbage sauerkraut
+150 g tempeh
+3 tbsp tamari/ soy sauce
+1 tsp apple cider vinegar or vinegar of choice
+1 tbsp maple syrup
+1/2 tsp smoked paprika
+1 tbsp mixed sesame seeds
+1 tbsp fresh ginger chopped finely
+
+
 INSTRUCTIONS
  
 First start with the dressing mix together the tamari, vinegar, maple syrup, smoked paprika until well combined.
